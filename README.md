@@ -6,3 +6,5 @@
 ### From mastering core Python concepts to building practical projects, I thrive on taking on new challenges and solving complex problems. My vision is to merge my love for data, technology, and AI to craft solutions that push the boundaries of innovation and impact the world.
 
 ### Let’s connect, collaborate, and share ideas! 💡
+
+## ghanimuhammadusman09811@gmail.com
